@@ -1,1 +1,1 @@
-# cybersecurity-resources
+# Cybersecurity-Resources
