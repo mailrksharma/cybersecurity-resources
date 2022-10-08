@@ -48,3 +48,6 @@
 ## Cybersecurity General
 
 ## Youtube links -
+- Top paying cybersecurity certifications [2022]
+
+  https://www.youtube.com/watch?v=jbZ0MorIth0
